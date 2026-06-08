@@ -1,4 +1,4 @@
-# ⚡ Hi, I'm Ángela García Huelamo 👩‍💻✨
+# ⚡ Hi, I'm Ángela García 👩‍💻✨
 
 ### 🚀 Transforming Code into Insights | From Full-Stack to Data & AI Specialist
 
